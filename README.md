@@ -1,1 +1,0 @@
-# turicentro-sivar
